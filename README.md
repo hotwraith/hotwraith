@@ -1,1 +1,1 @@
-// A wild Hotwraith appears.
+Novice with eyes in the stars. I contribute for @pilotstradenetwork sometimes.
